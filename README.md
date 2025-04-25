@@ -6,4 +6,3 @@
 - 📫 How to reach me: Email: kururaderrick@gmail.com | LinkedIn: [Derrick Kurura](https://linkedin.com/in/derrick-kurura-421610243) | Phone: +254700383811
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I play chess and enjoy reading classical and philosophical literature when I'm not exploring the cutting edge of healthcare technology!
-![Metrics](https://metrics.lecoq.io/Derrick-Jr)
